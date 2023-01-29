@@ -1,0 +1,7 @@
+# Untitled
+
+11月目標 🚀: PRマージ：0 / 3
+PR確認： 1 / 3
+アイデア投稿：/ 2　
+やっていること 🏃‍♂️: https://github.com/ideee-tech/ideee/pull/875
+名前: 隼人 佐山
